@@ -135,7 +135,6 @@ https://allods.my.games/forum/index.php?page=User&userID=158202
 https://start.me/w/Qpo1yj
 https://www.divephotoguide.com/user/alo789vorg
 https://fileforum.com/profile/alo789vorg
-https://scrapbox.io/alo789vorg/Alo789_-_N%E1%BB%81n_t%E1%BA%A3ng_c%C3%A1_c%C6%B0%E1%BB%A3c_tr%E1%BB%B1c_tuy%E1%BA%BFn_h%C3%A0ng_%C4%91%E1%BA%A7u_t%E1%BA%A1i_Vi%E1%BB%87t_Nam
 https://my.desktopnexus.com/alo789vorg/#ProfileComments
 https://www.free-ebooks.net/profile/1588991/alo789v-org
 https://my.archdaily.com/us/@alo789v-org
